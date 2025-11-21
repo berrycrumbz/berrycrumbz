@@ -6,7 +6,7 @@ conditions , dissabilities ;
 
 i have, autism, adhd, thyrotoxoisis, pcos , mdd / depression , dyslexia , sight and memory issues, CPTSD. i have CONSTANT naseua that causes headaches so dont mind me complaining !!   I AM MEDICATED .
 
-im taken by my wonderful gf ILY BABYYY!!<3333 02/29/25 ( almost a year guys ) 
+rss ; idk.
 
 dnis ; prohippers, darkshippers, t.r.a.s.h , pedos, groomers, zoos
 
