@@ -1,12 +1,13 @@
 hi im a osdd questioning system i am not sure if its 1a or 1b, i am aware i could be in a delusion, phycosis, or i have scizophrena. here is our strawpage -- https://cherrypickingsysintro.straw.page
 
 im bodily 16 
+I HAVE A HUGE HYPERFIXATION ON DISORDERS, CONDITIONS, AND DISSABILITIES!!! ASK ME AB EM
 
 conditions , dissabilities ;
 
-i have, autism, adhd, thyrotoxoisis, pcos , mdd / depression , dyslexia , sight and memory issues, CPTSD. i have CONSTANT naseua that causes headaches so dont mind me complaining !!   I AM MEDICATED .
+i have, autism, adhd, thyrotoxoisis, pcos , mdd / depression , dyslexia , sight and memory issues, CPTSD. i have CONSTANT naseua that causes headaches so dont mind me complaining. i also have gerd (stage 2 on medication!!) !!   I AM MEDICATED .
 
-rss ; idk.
+rss ; TAKEN BY MY BEAUTIFUL WIFEY !! 12/16/25
 
 dnis ; prohippers, darkshippers, t.r.a.s.h , pedos, groomers, zoos
 
@@ -26,7 +27,7 @@ accused age player, harasses others sexually and non seuxally. theres alot more 
 
 
 
-im usually w2i but ifi int first dont be scared of me! im rlly friendly i swear , usually at sonic, forsaken, dandys world, osc, and lmk area!!!
+im usually w2i but ifi int first dont be scared of me! im rlly friendly i swear , usually at sonic, forsaken, dandys world, osc, JJK, and lmk area!!!
 
 USE TTGS (/j , / hvyj ) yk? i cant tell tone nor can i even control my own WAAH
 i will jokingly harass you and joke about stuff i prob shouldnt  ( like my parents death --> coping mechinism ) 
