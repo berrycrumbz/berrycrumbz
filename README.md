@@ -1,3 +1,8 @@
+# HEAVY NOTE 
+
+
+
+
 hi im a osdd questioning system i am not sure if its 1a or 1b, i am aware i could be in a delusion, phycosis, or i have scizophrena. here is our strawpage -- https://cherrypickingsysintro.straw.page
 
 im bodily 16 
