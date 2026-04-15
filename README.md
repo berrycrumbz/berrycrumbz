@@ -1,4 +1,4 @@
-# HEAVY NOTE 
+# HEAVY NOTE; i can be heavily mentally unstable as it affects me negatively please let me jnow ifni do anything to wrong you.
 
 
 
@@ -12,7 +12,7 @@ conditions , dissabilities ;
 
 i have, autism, adhd, thyrotoxoisis, pcos , mdd / depression , dyslexia , sight and memory issues, CPTSD. i have CONSTANT naseua that causes headaches so dont mind me complaining. i also have gerd (stage 2 on medication!!) !!   I AM MEDICATED .
 
-rss ; TAKEN BY MY BEAUTIFUL WIFEY !! 12/16/25
+rss ; i dont even know anymore.
 
 dnis ; prohippers, darkshippers, t.r.a.s.h , pedos, groomers, zoos
 
@@ -24,11 +24,13 @@ reasons ; this doc. read it . im tab 18 in this  -----> https://docs.google.com/
 
 ; rat 
 
-; shurkienstars, sunnydbroker, mexicanbroker, fallenfolly.
+; shurkienstars, sunnydbroker, mexicanbroker, fallenfolly, tinysunnyd
 
 accused age player, harasses others sexually and non seuxally. theres alot more on them
 
-; fizzyfries 
+; roxyraceway
+
+; quill
 
 
 
@@ -37,6 +39,6 @@ im usually w2i but ifi int first dont be scared of me! im rlly friendly i swear 
 USE TTGS (/j , / hvyj ) yk? i cant tell tone nor can i even control my own WAAH
 i will jokingly harass you and joke about stuff i prob shouldnt  ( like my parents death --> coping mechinism ) 
 
-i do smoke and vape --> do not tell me to stop because i will want u to know that i cant nor will i ( its an addiciton and my health ill still think about it but its slim as ive had this addiction since 12 )
+i do smoke and vape --> do not tell me to stop because i will want u to know that i cant nor will i ( its an addiciton and my health. ill still think about it but its slim, as ive had this addiction since 12 )
 
 uhhhh thats really all ig tyty !<3
