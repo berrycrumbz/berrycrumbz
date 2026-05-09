@@ -1,4 +1,4 @@
-# HEAVY NOTE; i can be heavily mentally unstable as it affects me negatively please let me jnow ifni do anything to wrong you.
+# HEAVY NOTE; i can be heavily mentally unstable as it affects me negatively please let me jnow if i do anything to wrong you.
 
 
 
@@ -12,7 +12,7 @@ conditions , dissabilities ;
 
 i have, autism, adhd, thyrotoxoisis, pcos , mdd / depression , dyslexia , sight and memory issues, CPTSD. i have CONSTANT naseua that causes headaches so dont mind me complaining. i also have gerd (stage 2 on medication!!) !!   I AM MEDICATED .
 
-rss ; i dont even know anymore.
+rss ; I LOVE MY PARTNERS!!<3 BLUE , CUSTARD, AND SUN/P
 
 dnis ; prohippers, darkshippers, t.r.a.s.h , pedos, groomers, zoos
 
