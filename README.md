@@ -5,14 +5,14 @@
 
 hi im a osdd questioning system i am not sure if its 1a or 1b, i am aware i could be in a delusion, phycosis, or i have scizophrena. here is our strawpage -- https://cherrypickingsysintro.straw.page
 
-im bodily 16 
+im bodily 17
 I HAVE A HUGE HYPERFIXATION ON DISORDERS, CONDITIONS, AND DISSABILITIES!!! ASK ME AB EM
 
 conditions , dissabilities ;
 
 i have, autism, adhd, thyrotoxoisis, pcos , mdd / depression , dyslexia , sight and memory issues, CPTSD. i have CONSTANT naseua that causes headaches so dont mind me complaining. i also have gerd (stage 2 on medication!!) !!   I AM MEDICATED .
 
-rss ; I LOVE MY PARTNERS!!<3 BLUE , CUSTARD, AND SUN/P
+rss ; I LOVE MY PARTNERS!!<3 BLUE & DOVE <333
 
 dnis ; prohippers, darkshippers, t.r.a.s.h , pedos, groomers, zoos
 
